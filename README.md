@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @akim42
+- 👀 I’m interested in Dart, Python, PHP, HTML, CSS and Kitesurfing )
+- 🌱 I’m currently learning Dart
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me on +996706660005 WhatsApp https://wa.me+996706660005 or Telegram https://t.me/akimbakriev
+- :email: My email bakriev42@gmail.com
