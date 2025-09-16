@@ -2,5 +2,5 @@
 - 👀 I’m interested in Dart, Python, PHP, HTML, CSS and Kitesurfing )
 - 🌱 I’m currently learning Dart
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on +996706660005 WhatsApp https://wa.me+996706660005 or Telegram https://t.me/akimbakriev
+- 📫 How to reach me on +16284689349 WhatsApp https://wa.me/+16284689349 or Telegram https://t.me/akimbakriev
 - :email: My email bakriev42@gmail.com
